@@ -1,0 +1,2 @@
+# ElecroCycler
+Recycling the Starfire! - Biz Model: Buy all A.I. GPU &amp; FPGA electronics in ordinary garbage &amp; salvaged producst! Wrecked and used Cars! Supply: Reach out to insurance auto auction winning bidders &amp; mechanics who legally own these Already! And we will Monopolize the used Embedded a.i. computing market and Buy every one! It's just Cars &amp; Industrial robots for for now! But in 10 years it'll be in Everything! - Derivative: created a derivative Security for  companies trading in the Used marked for salvaged &amp; Repair A.I. parts! ;-)
